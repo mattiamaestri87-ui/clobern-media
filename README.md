@@ -1,2 +1,2 @@
-﻿Proposte di stile generate da AI per CLOBERN. Non sono foto del capo indossato.
+﻿Foto reali del capo e proposte di stile generate da AI per CLOBERN. Le immagini di styling non sono foto del maglione indossato.
 
